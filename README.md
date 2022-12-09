@@ -1,2 +1,3 @@
-# Kokohaku
-umay
+#Just a wannabee coder
+
+Fvk this sucks
